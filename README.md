@@ -15,5 +15,3 @@
 
 “The biggest battle is the war against ignorance.”
 ― Mustafa Kemal Atatürk
-
-[!][](https://visitcount.itsvg.in/api?id=alisolmazdev&icon=9&color=12)]
